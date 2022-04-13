@@ -1,0 +1,1 @@
+# saltlar_ovqatlar
